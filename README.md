@@ -1,10 +1,10 @@
 # - 二零零导航最新网址发布页：X福利导航，满足您欲望！ -
 # - 200dh.com -
 
-二零零导航永久域名：https://www.200dh.com<br>
+二零零导航永久域名：https://www.2040dh.com<br>
 二零零导航最新网址：https://www.1020dh.com<br>
 二零零导航地址发布QQ群：0<br>
-防屏蔽地址①：https://www.200dh.com/<br>
+防屏蔽地址①：https://www.2040dh.com/<br>
 
 动动手指将本地址发布页收藏起来，永不迷路。<br>
 
